@@ -16,5 +16,5 @@ I’m Edrend, a 15-year-old junior high school student from the Philippines 🇵
 
 ## Inquiries:
 
-- **Discord:** 
-- **Facebook:** 
+- **Discord:** seventy.sevenn 
+
